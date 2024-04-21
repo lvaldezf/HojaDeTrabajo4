@@ -1,2 +1,2 @@
 # HojaDeTrabajo4
-Leonardo Jos[e Va
+Leonardo José Valdéz Flores 9490-22-5890 Sección "c"
